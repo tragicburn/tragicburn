@@ -1,5 +1,5 @@
 <div align="center">
-<img <img width="735" height="414" alt="image" src="https://github.com/user-attachments/assets/7750acf0-43e0-42a3-9238-80010ce55f3e" />
+<img  />
 
 </div>
 
@@ -8,9 +8,9 @@
 $${\color{4DCE5A}  𝐵𝒶𝓈𝒾𝒸  \space 𝒹𝓃𝒾}$$<div>
 </div>
 
-<div align="center"> <img <img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/c8795173-9e2e-4563-8ce6-f582a2673554" />
+<div align="center"> <img " />
 
-I do NOT support forsaken devs !
+WIP
 </div>
 
 
