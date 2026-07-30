@@ -1,4 +1,5 @@
-<div align="center">
+<div align="center"><img width="735" height="565" alt="image" src="https://github.com/user-attachments/assets/52fc2799-c671-4d4d-a3f0-25f895f81dc8" />
+
 <img  />
 
 </div>
@@ -10,7 +11,7 @@ $${\color{4DCE5A}  𝐵𝒶𝓈𝒾𝒸  \space 𝒹𝓃𝒾}$$<div>
 
 <div align="center"> <img " />
 
-WIP
+Season 5 was a fever dream
 </div>
 
 
