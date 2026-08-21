@@ -1,4 +1,4 @@
-<div align="center"><img width="735" height="565" alt="image" src="https://github.com/user-attachments/assets/52fc2799-c671-4d4d-a3f0-25f895f81dc8" />
+<div align="center"><img width="762" height="500" alt="image" src="https://github.com/user-attachments/assets/dd82d72a-3744-4146-bbb8-33d3ce0c97ca" />
 
 <img  />
 
@@ -16,11 +16,10 @@ Season 5 was a fever dream
 
 
 
-$${\color{FF6397} Yin \space and \space Alex ✿ }$$<div>
-</div>
+
 
 
 
 <div align="center">
-<img width="212" height="162" alt="image" src="https://github.com/user-attachments/assets/332bfbd8-96d2-4eef-85c3-bb4a9001bfa4" />
-</div>
+<img width="234" height="221" alt="image" src="https://github.com/user-attachments/assets/bcf8cfa6-a22c-49db-ab84-495d86fdfef3" />
+
