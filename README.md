@@ -1,4 +1,5 @@
-<div align="center"><img width="762" height="500" alt="image" src="https://github.com/user-attachments/assets/dd82d72a-3744-4146-bbb8-33d3ce0c97ca" />
+<div align="center"><img width="736" height="485" alt="image" src="https://github.com/user-attachments/assets/0d274073-302e-42b3-a518-5e1ad1817cb3" />
+
 
 <img  />
 
@@ -9,10 +10,7 @@
 $${\color{4DCE5A}  𝐵𝒶𝓈𝒾𝒸  \space 𝒹𝓃𝒾}$$<div>
 </div>
 
-<div align="center"> <img " />
-
-Season 5 was a fever dream
-</div>
+<div align="center"> <img width="736" height="744" alt="image" src="https://github.com/user-attachments/assets/b0880651-dc32-4ca1-ade2-87b38ef4f054" />
 
 
 
@@ -20,6 +18,8 @@ Season 5 was a fever dream
 
 
 
-<div align="center">
-<img width="234" height="221" alt="image" src="https://github.com/user-attachments/assets/bcf8cfa6-a22c-49db-ab84-495d86fdfef3" />
+
+
+
+
 
